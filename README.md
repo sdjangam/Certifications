@@ -1,2 +1,2 @@
 # Certifications
- Here All My Training programs and certifications in this section.
+ Here My All Training programs and certifications in this section.
